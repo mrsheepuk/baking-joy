@@ -1,7 +1,7 @@
 Mark's fabulous biscuit method, inspired by Rise
 and Alton Brown recipes:
 
-## Ingredients
+### Ingredients
 
 * 275g self-raising white flour
 * 1 large egg, 
@@ -9,7 +9,7 @@ and Alton Brown recipes:
 * 82g salted butter
 * 0.75tsp salt
 
-## Method
+### Method
 
 Make buttermilk - half way between 1/2 &  2/3 cup whole 
 milk, ~4tsp lemon juice (should add to 2/3 cup total), 
