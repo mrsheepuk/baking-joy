@@ -50,6 +50,7 @@ For savoury, sprinkle the sea/rock salt crystals over before baking.
 Bake for 11 minutes until golden.
 
 Brush generously with melted butter. For sweet, dump pretzel after brushing with butter (top and 
-bottom) into a bowl full of cinnamon sugar and flip until well covered.
+bottom) into a bowl full of cinnamon sugar (1/2 cup sugar to 3/4 tsp cinnamon) and flip until well 
+covered.
 
 EAT!!!
