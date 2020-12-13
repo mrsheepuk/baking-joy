@@ -1,3 +1,5 @@
+# Standard loaf
+
 Starting recipe for a standard wholemeal-ish loaf. Goes nicely with a nice seed mix.
 
 ### Ingredients

@@ -1,3 +1,5 @@
+# Soft Pretzels
+
 ### Ingredients
 
 Dough:

@@ -1,5 +1,6 @@
-Mark's fabulous biscuit method, inspired by Rise
-and Alton Brown recipes:
+# Southern-style Biscuits
+
+Mark's fabulous biscuit method, evolved from Rise and Alton Brown recipes.
 
 ### Ingredients
 
