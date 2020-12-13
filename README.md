@@ -7,6 +7,7 @@ Lovely recipes wot I use.
 * [Standard loaf](breads/standard-loaf.md)
 * [Soft rolls](breads/soft-rolls.md)
 * [Cinnamon rolls](breads/cinnamon-rolls.md)
+* [Soft pretzels](breads/soft-pretzels.md)
 
 ## Southern-style biscuits
 
