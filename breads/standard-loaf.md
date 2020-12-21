@@ -11,7 +11,21 @@ Starting recipe for a standard wholemeal-ish loaf. Goes nicely with a nice seed 
 * 2tbsp olive oil
 * 135ml boiling + 165ml cold water
 
+Optional seed mix:
+
+* 15g pumpkin seeds
+* 20g sunflower seeds
+* 6g linseeds
+* 1.5g chia
+* 1.5g poppy seeds
+* 3g white sesame seeds
+* 1g black sesame seeds
+* 2g quinoa puffs
+
 ### Method
+
+> If adding seeds, mix all together and toast in a dry pan for a few minutes, stirring frequently.
+> Let cool for a bit then add in with the flour etc.
 
 Mix flours and yeast, add salt and mix, make well in middle and add water & oil, mix into a ball 
 then turn out, knead for ~10 minutes until smooth/elastic. 
