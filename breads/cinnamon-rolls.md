@@ -8,19 +8,19 @@ Dough:
 * 180ml milk (whole best)
 * 2 tsp quick yeast
 * 410g white bread flour + 5g to dust surface
-* 1/4 cup sugar
+* 1/4 cup (50g) granulated sugar
 * 0.75 tsp salt
 
 Cinnamon sugar layer:
 * 57g softened butter
-* 2/3 cup sugar
+* 2/3 cup (135g) sugar
 * 1.5 tbsp cinnamon
 
 
 ### Method
 
 Melt 57g butter, beat 1 egg+1 yolk, microwave 180ml milk for 60s, mix all in glass bowl and sprinkle 
-2tsp yeast over, mix well. Mix 410g flour+3/4tsp salt+1/4cup sugar in medium sized mixing bowl 
+2tsp yeast over, mix well. Mix 410g flour+3/4tsp salt+50g sugar in medium sized mixing bowl 
 then add liquid mixture. Mix until combined then turn out onto surface floured with 1tsp/5g, knead 
 until it comes together - may need to add a little more flour during kneading as this is a very 
 sticky dough.
@@ -28,7 +28,7 @@ sticky dough.
 Form into ball, clean+grease bowl then return dough to it. Cover and rise for ~40-60 minutes until 
 doubled.
 
-While rising, soften the other 57g butter, mix 2/3cup sugar+1.5tbsp cinnamon in a bowl. Grease 
+While rising, soften the other 57g butter, mix 135g sugar+1.5tbsp cinnamon in a bowl. Grease 
 a square Pyrex and 2x ramekins.
 
 Once risen, punch down and knead a bit then roll out in a portrait direction to approx 14"x9", 
