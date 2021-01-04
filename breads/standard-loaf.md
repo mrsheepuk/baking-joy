@@ -6,7 +6,7 @@ Starting recipe for a standard wholemeal-ish loaf. Goes nicely with a nice seed 
 
 * 200g white bread flour
 * 300g whole bread flour
-* 1.5tsp salt
+* 13.5g (1.5tsp) salt
 * 1tsp quick yeast
 * 2tbsp olive oil
 * 135ml boiling + 165ml cold water
@@ -15,12 +15,11 @@ Optional seed mix:
 
 * 15g pumpkin seeds
 * 20g sunflower seeds
-* 6g linseeds
-* 1.5g chia
-* 1.5g poppy seeds
+* 7g linseeds
+* 2g chia
+* 2g poppy seeds
 * 3g white sesame seeds
 * 1g black sesame seeds
-* 2g quinoa puffs
 
 ### Method
 
@@ -37,7 +36,7 @@ Punch down then form into loaf, rise 30-40 minutes until finger impression on si
 pre-heat oven to 210° with a dish of boiling water inside so it's up to temp by the time this is 
 risen.
 
-Slash top with sharp knife then bake 32-33 minutes.
+Slash top with sharp knife then bake 33-34 minutes.
 
 Turn out from tin then knock bottom, should sound hollow. Put on a rack to cool to avoid soggy 
 bottom.

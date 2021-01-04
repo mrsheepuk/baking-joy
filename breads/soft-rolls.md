@@ -6,13 +6,13 @@ something in between great for sandwich rolls.
 ### Ingredients
 
 * 2tbsp sugar
-* 248g whole milk (1cup)
+* 248g (1 cup) whole milk
 * 60g butter
+* 1 egg, beaten
 * 330g white bread flour
 * 100g wholemeal bread flour 
 * 1tsp salt 
-* 2tsp quick yeast
-* 1 egg
+* 1tsp quick yeast
 
 ### Method 
 
