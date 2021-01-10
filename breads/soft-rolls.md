@@ -13,7 +13,7 @@ Same dough can also be very successfully used for a loaf, see bottom.
 * 1 egg, beaten (or 1tbsp chia soaked in 2.5tbsp water for 5-10 minutes)
 * 330g white bread flour (+15g to flour surface)
 * 100g wholemeal bread flour 
-* 1tsp salt 
+* 8g (1tsp) salt 
 * 1tsp quick yeast
 
 ### Method 
