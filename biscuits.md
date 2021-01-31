@@ -43,26 +43,23 @@ after each fold using silicon spatula or by hand. If you got the wetness right a
 
 After the final fold, ensure you have a 'generous' 1" thick layer to cut from.
 
-Use 88mm cutter (for 4x HUGE biscuits) to cut the biscuits - cut *straight down* and *do not twist* 
-(for many tiny biscuits, 58mm cutter works)
+Use 78mm cutter (for 4x HUGE biscuits) to cut the biscuits - cut *straight down* and *do not twist* 
+trying to make four equal sized biscuits, some reforming likely required for the final one or two. For 
+many tiny biscuits, a 58mm cutter works well. Reform any remains into a final runty ball for the chef 
+to test once cooked ;)
 
-Place cut biscuit onto baking paper on a baking sheet - put right up against each other - i.e. 
+It can help to reform slightly after each cut and always cut from the edge, so as not to leave any bits. 
+Between each cut, use flour to rub any sticky bits off cutter.
+
+Place cut biscuits onto baking paper on a baking sheet - put right up against each other - i.e. 
 actually touching at the sides. Silicon spatula helpful to go under cutter while transferring to 
 baking sheet.
 
-Good results reforming slightly after each cut and always cutting from the edge, so as not to leave 
-any bits. Between each cut, use flour to rub any sticky bits off cutter.
+Bake 12-15 minutes until risen and golden. Prepare scramble and/or coffee while baking, and melt some
+butter.
 
-Get as many as possible out of first pass (4x88mm, 8-9x68mm or 4x78mm+2x68mm should be possible, 
-depending on thickness)
-
-Reform any remaining dough at the end and cut or hand form a final "runty" biscuit or two.
-
-Bake 12-15 minutes until risen and golden. Prepare scramble and/or coffee while baking.
-
-Brush with melted butter after removing from oven.
-
-Transfer from baking sheet/paper immediately onto wire rack to retain crispy bums.
+Brush biscuits with the melted butter after removing from oven then transfer from baking sheet/paper 
+immediately onto wire rack to retain crispy bums.
 
 Slice and serve with scrambled egg (any spare buttermilk goes fabulously in scramble) and cheese 
 (cheddar, American, or even parmesan works)
