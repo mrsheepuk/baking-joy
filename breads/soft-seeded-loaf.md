@@ -9,8 +9,8 @@
 * 11g chia + 34g water (or an egg)
 * 30g olive oil
 * 210g oato or whole milk
-* 95g water
-* 35g sugar
+* 85g water
+* 30g sugar
 
 Seed mix:
 
