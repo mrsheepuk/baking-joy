@@ -4,7 +4,7 @@
 
 * 200g white bread flour
 * 300g whole bread flour
-* 9g (1.5tsp) salt
+* 10g (1.5tsp) salt
 * 1tsp quick yeast
 * 11g chia + 34g water (or an egg)
 * 30g olive oil
