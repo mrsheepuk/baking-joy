@@ -28,8 +28,8 @@ Make a well in centre of mixture
 
 Add beaten egg
 
-Add some of the buttermilk and mix using silicon spatula, until *just* combined (sticky/lumpy is the 
-order of the day) - assess wetness and add more buttermilk as needed, wants to be very wet but not 
+Add 120g of buttermilk and mix using silicon spatula, until *just* combined (sticky/lumpy is the 
+order of the day) - assess wetness and add more buttermilk if needed, wants to be very wet but not 
 too wet (err on side of NOT too wet if in ANY DOUBT; you really don't want it to stick to the 
 surface, usually a little less than full amount of buttermilk).
 
