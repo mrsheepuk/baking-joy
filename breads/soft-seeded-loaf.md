@@ -7,9 +7,9 @@
 * 10g (1.5tsp) salt
 * 1tsp quick yeast
 * 11g chia + 34g water (or an egg)
-* 30g olive oil
+* 30g olive oil + 85g water OR 
+* 37g butter + 75g water
 * 210g oato or whole milk
-* 85g water
 * 30g sugar
 
 Seed mix:
